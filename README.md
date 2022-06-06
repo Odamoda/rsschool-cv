@@ -1,1 +1,1 @@
-https://Odamoda.github.io/rsschool-cv/cv
+https://Odamoda.github.io/rsschool-cv/
